@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tartempion-sdr
-- 👀 I’m interested in ... continuer de parlé ma langue.
+- 👀 I’m interested in ... continuer de parler ma langue.
 - 🌱 I’m currently learning ... comment?
 - 💞️ I’m looking to collaborate on ... ah, oui, oui-oui tout.
 - 📫 How to reach me ... tu me trouve ^^.
